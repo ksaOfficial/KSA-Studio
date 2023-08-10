@@ -1,2 +1,2 @@
 # KSA-Studio
-This Studio it has been opened officially
+Don't read
